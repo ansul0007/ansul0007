@@ -52,6 +52,6 @@ I'm a Software Engineer passionate about building scalable web applications and 
 
 ## 📫 Connect with Me
 
-- LinkedIn: https://www.linkedin.com/in/ansul-rao-2113822b/
+- LinkedIn: https://www.linkedin.com/in/ansul0007/
 
 ⭐ Thanks for visiting my profile!
